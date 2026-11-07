@@ -6,6 +6,6 @@
 
 ### 2. Tractive Smart Dog Tracker (The Value & Rating Choice)
 - **Price:** £46.57
-- **Rating:** 4.2/5 (951 reviews)
+- **Rating:** 4.2/5 (950+ reviews)
 - **Best For:** Budget-conscious city owners looking for a higher satisfaction score.
 - [Check Price on Amazon UK](https://link.amazon/B0hCMquDf)
